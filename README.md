@@ -3,7 +3,7 @@
 - Discord -> **vivivanilla** [*360950340981489675*]
 ## I’m currently 
   - In mtech (Scary)
-  - Hard stuck in rivals
+  - LOVING BG3
 
 <!--- hi :) raw data
 --->
