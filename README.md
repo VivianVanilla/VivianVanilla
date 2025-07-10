@@ -3,7 +3,8 @@
 - Discord -> **vivivanilla** [*360950340981489675*]
 ## I’m currently 
   - In mtech (Scary)
-  - LOVING BG3
+  - Working on Magic Bank !
+  - LOVING V rising (vampire stuff)
 
 <!--- hi :) raw data
 --->
