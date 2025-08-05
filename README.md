@@ -1,10 +1,11 @@
 # Hi, I’m VivianVanilla <3
 ## Contact Me
+- Email -> vivian.bonilla@outlook.com
 - Discord -> **vivivanilla** [*360950340981489675*]
 ## I’m currently 
-  - In mtech (Scary)
+  - In mtec (Scary)
   - Working on Magic Bank !
-  - LOVING V rising (vampire stuff)
+  - Applying to interships
 
 <!--- hi :) raw data
 --->
