@@ -5,7 +5,6 @@
 ## I’m currently 
   - Working with Dental Software!
   - Working on Fables.vivi.nexus
-  - Hoping for Fame and Glory
 
 <!--- hi :) raw data
 --->
